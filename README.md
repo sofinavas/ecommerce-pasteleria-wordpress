@@ -20,4 +20,3 @@
 Puedes visitar el sitio aqui: [https://lucianavaspasteleria.com/](https://lucianavaspasteleria.com)
 
 
-## 📸 Capturas de pantalla
